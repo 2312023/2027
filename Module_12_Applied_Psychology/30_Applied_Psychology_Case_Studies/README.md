@@ -1,0 +1,1 @@
+# 30_Applied_Psychology_Case_Studies
