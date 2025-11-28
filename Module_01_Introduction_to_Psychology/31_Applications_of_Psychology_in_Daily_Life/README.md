@@ -1,0 +1,1 @@
+# 31_Applications_of_Psychology_in_Daily_Life
